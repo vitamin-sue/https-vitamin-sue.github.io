@@ -2,6 +2,12 @@
 layout: none
 title: ""
 ---
+<p align="center">
+  <img src="https://github.com/vitamin-sue.png?size=200"
+       alt="Avatar"
+       width="160"
+       style="border-radius: 50%;" />
+</p>
 # Personal Homepage
 
 > This is not an introduction meant to please everyone; it is a presentation of myself as honestly and clearly as possible.

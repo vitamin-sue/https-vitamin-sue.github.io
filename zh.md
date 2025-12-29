@@ -2,6 +2,13 @@
 layout: none
 title: ""
 ---
+<p align="center">
+  <img src="https://github.com/vitamin-sue.png?size=200"
+       alt="Avatar"
+       width="160"
+       style="border-radius: 50%;" />
+</p>
+
 # 个人主页
 
 > 这不是一份“取悦所有人”的介绍，而是一份尽量真实、清晰的自我呈现。
