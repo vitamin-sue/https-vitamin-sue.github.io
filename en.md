@@ -1,5 +1,4 @@
 ---
-title: About me
 ---
 
 # Personal Homepage
