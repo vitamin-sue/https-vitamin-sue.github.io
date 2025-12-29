@@ -1,5 +1,5 @@
 ---
-title: My Personal Homepage
+title: About me
 ---
 
 # Personal Homepage
