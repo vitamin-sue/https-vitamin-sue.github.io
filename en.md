@@ -21,22 +21,23 @@ title: ""
 I have lived in Australia for many years and plan to settle here long-term, spending the later stages of my life in this country.
 
 **Basic Profile:**
+- Gender: Female
 - Year of birth: 1979
-- MBTI type: INTJ
+- MBTI type: INT(F)J
 - Marital status: Divorced; reason is complex, both parties were inexperienced in relationships, and I awakened relatively late.
 - Profession: IT
 - Upbringing: Grew up in a relatively harsh environment, but do not seek hardship itself; ideal life is comfortable, calm, and fulfilling
 - Food preference: Light, healthy meals; can eat spicy but not obsessed with it
+
+I am compassionate, have a gentle temperament, high tolerance, tend to discover shinning points of others and naturally give sincere affirmation and praise. In relationships, I value long-term stability, respect, and emotional security more than short-lived excitement.
+
+I enjoy physical activity and care about my health, as it forms the foundation for long-term quality of life.
 
 I am not an outwardly expressive person. I value calmness, restraint, and stability. My appearance is average, but I value overall presence, demeanor, and long-term sustainable lifestyle.
 
 I tend to think rationally and appreciate structure and order. Reflection, analysis, and continuous self-adjustment are integral to my life. I am open-minded but introverted; value inner qualities over outward displays; have low material desires; live a minimalist, energy-conscious life. My energy is moderate—not constantly high—so I prioritize pacing and recovery.
 
 When solving problems, I prefer objective analysis first, followed by communication to seek solutions favorable to all, rather than emotional confrontation.
-
-I am compassionate, have a gentle temperament, high tolerance, tend to discover shinning points of others and naturally give sincere affirmation and praise. In relationships, I value long-term stability, respect, and emotional security more than short-lived excitement.
-
-I enjoy physical activity and care about my health, as it forms the foundation for long-term quality of life.
 
 ---
 
