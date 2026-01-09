@@ -37,9 +37,7 @@ In relationships, I’m more like a cat.
 I enjoy my own company, also can be warm and affectionate.
 I value comfort and security in a connection — like a cat, I appreciate slowly building trust and feeling safe within clear boundaries, far more than fleeting excitement or surface-level fun.
 
-At the same time, I’m also like a Border Collie: I observe and analyze before acting.
-When facing problems, I prefer to break them down, clarify the logic,
-and communicate to find solutions that feel relatively comfortable and sustainable for both of us, rather than being led by emotions.
+At the same time, I’m also like a Border Collie: attuned to others’ emotions, able to analyze problems rationally, communicate proactively, and not be led by my emotions.
 
 I exercise and take care of my body, not to show off, but as a foundation for long-term living.
 My lifestyle is simple and unhurried, my energy isn’t constantly high-octane, and I value recovery and space for myself.
