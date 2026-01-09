@@ -32,29 +32,31 @@ If I were a pet, probably a mix between a cat and a Border Collie.
 If I were a bug, probably I have some part of a Bdelloid Rotifer.
 
 At first glance, I seem quiet and reserved, not flashy.  
-But inside, I’m quite sensitive—once understood, my emotions are abundant and sincere.  
+But inside, my emotions are abundant and sincere.  
 
-I’m like a Border Collie in the sense that I observe and analyze before acting.  
-When facing problems, I prefer to break them down, clarify the logic,  
-and communicate to find solutions that are relatively comfortable and sustainable for both parties,  
-rather than being led by emotions.  
+In relationships, I’m more like a cat.
+I enjoy my own company, also can be warm and affectionate.
+I value comfort and security in a connection —
+like a cat, I appreciate slowly building trust and feeling safe within clear boundaries, far more than fleeting excitement or surface-level fun.
 
-Yet in relationships, I’m more like a cat.  
-Not outwardly expressive, not clingy, with boundaries, and I respect others’ boundaries too.  
-I value whether a relationship can last—stability, respect, and emotional safety matter far more than short-term excitement.
+At the same time, I’m also like a Border Collie: I observe and analyze before acting.
+When facing problems, I prefer to break them down, clarify the logic,
+and communicate to find solutions that feel relatively comfortable and sustainable for both of us,
+rather than being led by emotions.
 
-I exercise and take care of my body—not to show off, but as a foundation for long-term living.  
-My lifestyle is simple and unhurried;  
-my energy isn’t constant high-octane, and I focus more on recovery and space.
+I exercise and take care of my body,
+not to show off, but as a foundation for long-term living.
+My lifestyle is simple and unhurried,
+my energy isn’t constantly high-octane, and I value recovery and space for myself.
 
 ---
 
 ### The Partner I Hope to Meet
 
-If you were a fruit, I’d hope you’d be a ripe apple — grounded, gently sweet, resilient, and calmly generous.
-If you were a pet, I’d hope you’d be a mix of a cat and a Golden Retriever — warm and reliable, with clear boundaries, willing to give, and also comfortable being on your own.
+If you were a fruit, I’d hope you’d be a ripe apple — grounded, gently sweet, resilient.
+If you were a pet, I’d hope you’d be a mix of a cat and a Golden Retriever — comfortable being on your own, warm and reliable, emotionally perceptive toward others, and willing to give.
 
-I’m naturally drawn to people who are mature, steady, gentle, and solid on the inside.
+I’m naturally drawn to people who are mature, gentle, solid on the inside, and communicate openly and thoughtfully.
 Someone who doesn’t keep score or overthink, who can both give and receive in emotions and in life — that kind of presence makes me feel at ease.
 
 ✅ **Traits I Appreciate**
