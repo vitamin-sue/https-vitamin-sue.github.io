@@ -8,149 +8,151 @@ title: ""
        width="160"
        style="border-radius: 50%;" />
 </p>
+
 # Personal Homepage
 
-> This is not an introduction meant to please everyone; it is a presentation of myself as honestly and clearly as possible.
-> 
-> Those who are a good fit will nod along; those who are not will naturally exit.
+> This isn’t an introduction meant to please everyone, but an attempt to present my true self as clearly as possible.  
+> The right people will read it and nod in understanding, while those it’s not meant for will naturally move on.
 
 ---
 
 ### About Me
 
-I have lived in Australia for many years and plan to settle here long-term, spending the later stages of my life in this country.
-
-**Basic Profile:**
+**Basic Information:**
 - Gender: Female
-- Year of birth: 1979
-- MBTI type: INT(F)J
-- Marital status: Divorced; reason is complex, both parties were inexperienced in relationships, and I awakened relatively late.
-- Profession: IT
-- Upbringing: Grew up in a relatively harsh environment, but do not seek hardship itself; ideal life is comfortable, calm, and fulfilling
-- Food preference: Light, healthy meals; can eat spicy but not obsessed with it
+- Year of Birth: 1979
+- MBTI: INT(F)J
+- Marital Status: Divorced; reasons are complex—both of us were new to relationships, and I realized my personal awakening relatively late.
+- Field: IT
+- Growing Up: Raised in a relatively challenging environment, but I don’t pursue hardship for its own sake. My ideal life is comfortable, calm, and fulfilling.
+- Diet Preference: Light and healthy food; can eat spicy but not obsessed with it.
 
-I am compassionate, have a gentle temperament, high tolerance, tend to discover shinning points of others and naturally give sincere affirmation and praise. In relationships, I value long-term stability, respect, and emotional security more than short-lived excitement.
+If I were a fruit, I’d be a ripe passion fruit.  
+If I were a pet, probably a mix between a cat and a Border Collie.
 
-I enjoy physical activity and care about my health, as it forms the foundation for long-term quality of life.
+At first glance, I seem quiet and reserved, not flashy.  
+But inside, I’m quite sensitive—once understood, my emotions are abundant and sincere.  
 
-I am not an outwardly expressive person. I value calmness, restraint, and stability. My appearance is average, but I value overall presence, demeanor, and long-term sustainable lifestyle.
+I’m like a Border Collie in the sense that I observe and analyze before acting.  
+When facing problems, I prefer to break them down, clarify the logic,  
+and communicate to find solutions that are relatively comfortable and sustainable for both parties,  
+rather than being led by emotions.  
 
-I tend to think rationally and appreciate structure and order. Reflection, analysis, and continuous self-adjustment are integral to my life. I am open-minded but introverted; value inner qualities over outward displays; have low material desires; live a minimalist, energy-conscious life. My energy is moderate—not constantly high—so I prioritize pacing and recovery.
+Yet in relationships, I’m more like a cat.  
+Not outwardly expressive, not clingy, with boundaries, and I respect others’ boundaries too.  
+I value whether a relationship can last—stability, respect, and emotional safety matter far more than short-term excitement.
 
-When solving problems, I prefer objective analysis first, followed by communication to seek solutions favorable to all, rather than emotional confrontation.
-
----
-
-### Who I Hope to Meet
-
-I am inclined to build a relationship with a mature, stable, emotionally mindful gentle man. Whether short-term or long-term, the following qualities are important to me.
-
-- Age difference within ±10 years
-- Any background or ethnicity
-- Clean, well-kept appearance with basic aesthetic sense
-- Honest, trustworthy
-- Gentle, considerate, emotionally perceptive
-- Communicates directly but not aggressively; can express and listen
-- Self-reflective and responsible for own choices
-- Organized lifestyle, good time and life management
-- Independent judgment, not reliant on others' opinions or social scripts
-
-**May not be a good fit if:**
-- Life heavily dependent on external factors (material, status, validation)
-- Strong desire to control or “fix” partner
-- Living under high stress with little recovery
-- Emotional or life management not yet stable
-- Closed-minded or low tolerance for differing viewpoints
+I exercise and take care of my body—not to show off, but as a foundation for long-term living.  
+My lifestyle is simple and unhurried;  
+my energy isn’t constant high-octane, and I focus more on recovery and space.
 
 ---
 
-### My Ideal Way of Living
+### The Partner I Hope to Meet
 
-I do not seek possession in a relationship, but a sense of mutual comfort and space.
+If you were a fruit, I hope you’d be a mature apple—steady, sweet, resilient, and reassuring.  
+If you were a pet, I hope you’d be a mix between a cat and a Golden Retriever—gentle, reliable, with boundaries; able to accompany but not cling.  
 
-- Daytime spent on personal interests, work, or self-growth
-- Evenings together in shared space: cooking or dining out, sharing thoughts and reflections, maintaining intimacy
-- At least one shared activity per week, presence over formality
-- Travel together 1–3 times a year, focusing on quality and experience rather than checklists
+I lean toward being with someone mature, stable, gentle, and self-developed.  
+Someone who manages their life well, keeps a steady pace, communicates directly but kindly, is sincere, considerate, and emotionally perceptive makes me feel comfortable.  
+
+Mutual respect, emotional stability, and gradually building a sense of security are the most attractive aspects of a relationship for me.
+
+✅ **Traits I Appreciate**
+- Age difference of around ±10 years  
+- Background doesn’t matter  
+- Values cleanliness, neatness, personal aura, and lifestyle  
+
+⚠️ **Possibly Not a Good Fit**
+- Highly dependent on external conditions (material, status, or others’ opinions)  
+- Controlling or wanting to “fix” others  
+- Long-term high stress and low recovery; emotionally unstable  
+- Closed-minded, low tolerance for different viewpoints  
+
+In short, I prefer relationships that are steady, where we can slowly grow closer and evolve together.
+
+---
+
+### My Ideal Lifestyle
+
+My ideal relationship isn’t about possession, but one that feels safe, comfortable, and allows space.  
+During the day, we focus on our own things—work, hobbies, personal growth—independently and freely.  
+In the evening, we return to our shared world, cook together or go out to eat, share the day’s experiences and thoughts, maintaining intimacy and connection.  
+
+I enjoy cozy indoor moments, but also occasionally stepping outside to breathe fresh air.  
+What matters to me isn’t daily food or entertainment, but conversation and companionship; camping or overly rugged adventures aren’t my first choice.
 
 ---
 
 ### Growth and Self-Understanding
 
-**Key changes over the past three years:**
-- Gradual clarity replacing confusion about life direction, relationships, self-image, and investments
-- Significantly reduced anxiety through consistent, actionable steps
-- Realization that many perceived innate limitations can be improved by effort
-- Established a rhythm of trying—reflecting—adjusting
+The past three years have brought significant change.  
+I used to be somewhat lost about life’s direction, but through trying, reviewing, and adjusting, things have gradually become clearer, and I’ve found my rhythm.  
+I’m also working on my personality, becoming more outgoing and attentive to my own feelings and experiences.  
+I still make long-term plans but understand life’s unpredictability, accepting outcomes that don’t go as wished.  
+For things about myself, I usually follow my heart and do my best.  
+For things beyond myself, I believe I can influence but not change them.  
 
-**Most worthwhile spending in the past 18 months:**
-- Food, especially fresh, high-quality ingredients and seafood, as they directly impact physical and emotional well-being
+I think the most worthwhile investments are always things that are long-lasting, truly valuable, or make me happier and better.  
 
-**Qualities I admire in others:**
-- Sincere praise
-- Showing respect and grace publicly
-- Proactive, open, generous
+I admire people who have influenced the world with intelligence and resilience:  
+
+- **Tokugawa Ieyasu**: Like an old oak tree, steady and patient, calm in storms, making those around him feel safe.  
+- **Kazuo Inamori**: Like a mature apple, rational, resilient, mission-driven, yet radiating warmth and light that draws people close.  
+- **Cao Cao**: Like a clever fox, decisive and wise, able to see clearly in complex situations and act swiftly.  
+- **Bruce Lee**: Like a sprinting cheetah, focused, efficient, extremely disciplined, never compromising on personal growth and breakthroughs.
 
 ---
 
 ### Sources of Happiness
 
-My happiest moments are often quiet:
-- Being cared for by people who matter
-- Relaxed, secure physical closeness
-- Feeling seen, appreciated, and affirmed
+My happiest moments are usually quiet.  
+For example, when someone who cares about me shows attention,  
+or in intimate moments where I feel relaxed and secure,  
+or when I feel seen, appreciated, and acknowledged—those moments are especially warm.  
 
-**Ways I restore energy:**
-- Chocolate
-- Sleep
-- Massage
-- Watching the ocean and letting my mind rest
+Ways I recharge are simple:  
+Sometimes a piece of chocolate, or a good sleep;  
+sometimes a massage, or watching the sea and just letting myself space out, feeling the rhythm of wind and water.
 
 ---
 
-### Life Scenarios
+### Life “What Ifs”
 
-**If financially free:**
-- Spend time in my hometown mountains
-- Live temporarily in admired countries
-- Invest in learning areas I am truly passionate about
+If time were freely available, I’d love to travel to scenic places across China, experience short-term living in different cities and nature, and also learn cooking, tasting life’s warmth and flavors.  
+At the same time, I’d like to devote myself to deeply studying what truly interests me, slowly accumulating and refining my skills.  
 
-**If life left is only one year:**
-- Build a genuine, intimate, connected relationship intentionally
+If I only had a year left in life, I’d focus all my energy on a real, intimate, deeply connected relationship.  
+Not just companionship, but mutual understanding and support, making the remaining time warm and fulfilling.
 
 ---
 
-### About Long-Term Partnership
+### Long-Term Relationship
 
-**Future plans:**
-- Already have an independent child
-- No plan for more children
+Regarding the future, I already have fairly independent children, and I don’t plan to have more.  
 
-**Someone may choose me because:**
-- Gentle, stable, emotionally consistent
-- Offers emotional affirmation and appreciation
-- Grounded expectations for relationships
+If someone chooses me, it may be because I’m gentle, stable, emotionally steady, and accepting.  
+I tend to give emotional support and affirmation, and my expectations for a relationship are practical, not complicated.  
 
-**They may hesitate because:**
-- Standards around cleanliness and order
-- Low emphasis on material lifestyle
-- Moderate energy, not constantly high; prioritize pacing and recovery
-- Principles flexible but regularly self-reflecting
+Of course, there may be reasons for hesitation.  
+I value cleanliness and order, but I don’t have high demands for material or lifestyle.  
+My energy isn’t always high-octane; I focus on pacing and recovery.  
+My principles are flexible, but I continually self-reflect and adjust, aiming for steady life and relationships.
 
 ---
 
 ### A Note for You
 
-If you feel inclined, you may share:
-- Which qualities of mine resonate with you? (1–5 points)
-- What information would help me understand you better?
-- One question you would genuinely like to ask me
+If you’d like, you can quietly share a little secret with me:  
+What made you interested in me—just one or two points is fine;  
+Or anything you think I should know to better understand you;  
+And finally, feel free to ask me the one question you most want to know.
 
 ---
 
-### Contact Me (Safe Form)
+### Contact Me (Secure Form)
 
-You can contact me through the form below; I will receive the message without exposing my email publicly:
+You can contact me directly using the form below. I will receive the message, but my email won’t be displayed publicly:
 
 <form action="https://formspree.io/f/xdaopboq" method="POST">
   <label>Your Name:</label>
@@ -164,4 +166,3 @@ You can contact me through the form below; I will receive the message without ex
 
   <button type="submit">Send</button>
 </form>
-
