@@ -104,7 +104,8 @@ I admire people who have influenced the world with intelligence and resilience:
 My happiest moments are usually quiet.  
 For example, when someone who cares about me shows attention,  
 or in intimate moments where I feel relaxed and secure,  
-or when I feel seen, appreciated, and acknowledged—those moments are especially warm.  
+or when I feel seen, appreciated, and acknowledged—those moments are especially warm. 
+And in sports, I perform at my best and feel so happy I could dance. 
 
 Ways I recharge are simple:  
 Sometimes a piece of chocolate, or a good sleep;  
