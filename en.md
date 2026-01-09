@@ -51,13 +51,11 @@ my energy isn’t constant high-octane, and I focus more on recovery and space.
 
 ### The Partner I Hope to Meet
 
-If you were a fruit, I hope you’d be a mature apple—steady, sweet, resilient, and reassuring.  
-If you were a pet, I hope you’d be a mix between a cat and a Golden Retriever—gentle, reliable, with boundaries; able to accompany but not cling.  
+If you were a fruit, I’d hope you’d be a ripe apple — grounded, gently sweet, resilient, and calmly generous.
+If you were a pet, I’d hope you’d be a mix of a cat and a Golden Retriever — warm and reliable, with clear boundaries, willing to give, and also comfortable being on your own.
 
-I lean toward being with someone mature, stable, gentle, and self-developed.  
-Someone who manages their life well, keeps a steady pace, communicates directly but kindly, is sincere, considerate, and emotionally perceptive makes me feel comfortable.  
-
-Mutual respect, emotional stability, and gradually building a sense of security are the most attractive aspects of a relationship for me.
+I’m naturally drawn to people who are mature, steady, gentle, and solid on the inside.
+Someone who doesn’t keep score or overthink, who can both give and receive in emotions and in life — that kind of presence makes me feel at ease.
 
 ✅ **Traits I Appreciate**
 - Age difference of around ±10 years  
