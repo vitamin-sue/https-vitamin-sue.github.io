@@ -31,23 +31,18 @@ If I were a fruit, I’d be a ripe passion fruit.
 If I were a pet, probably a mix between a cat and a Border Collie.
 If I were a bug, probably I have some part of a Bdelloid Rotifer.
 
-At first glance, I seem quiet and reserved, not flashy.  
-But inside, my emotions are abundant and sincere.  
+At first glance, I seem quiet and reserved, not flashy. but inside, my emotions are abundant and sincere.  
 
 In relationships, I’m more like a cat.
 I enjoy my own company, also can be warm and affectionate.
-I value comfort and security in a connection —
-like a cat, I appreciate slowly building trust and feeling safe within clear boundaries, far more than fleeting excitement or surface-level fun.
+I value comfort and security in a connection — like a cat, I appreciate slowly building trust and feeling safe within clear boundaries, far more than fleeting excitement or surface-level fun.
 
 At the same time, I’m also like a Border Collie: I observe and analyze before acting.
 When facing problems, I prefer to break them down, clarify the logic,
-and communicate to find solutions that feel relatively comfortable and sustainable for both of us,
-rather than being led by emotions.
+and communicate to find solutions that feel relatively comfortable and sustainable for both of us, rather than being led by emotions.
 
-I exercise and take care of my body,
-not to show off, but as a foundation for long-term living.
-My lifestyle is simple and unhurried,
-my energy isn’t constantly high-octane, and I value recovery and space for myself.
+I exercise and take care of my body, not to show off, but as a foundation for long-term living.
+My lifestyle is simple and unhurried, my energy isn’t constantly high-octane, and I value recovery and space for myself.
 
 ---
 
