@@ -74,7 +74,7 @@ My ideal relationship isn’t about possession, but one that feels safe, comfort
 During the day, we focus on our own things—work, hobbies, personal growth—independently and freely.  
 In the evening, we return to our shared world, cook together or go out to eat, share the day’s experiences and thoughts, maintaining intimacy and connection.  
 
-I enjoy cozy indoor moments, but also occasionally stepping outside to breathe fresh air.  
+I enjoy cozy indoor moments, but also stepping into nature to breathe fresh air.  
 What matters to me isn’t daily food or entertainment, but conversation and companionship; camping or overly rugged adventures aren’t my first choice.
 
 ---
