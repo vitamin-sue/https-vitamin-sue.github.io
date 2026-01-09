@@ -118,7 +118,7 @@ sometimes a massage, or watching the sea and just letting myself space out, feel
 If time were freely available, I’d love to travel to scenic places across China, experience short-term living in different cities and nature, and also learn cooking, tasting life’s warmth and flavors.  
 At the same time, I’d like to devote myself to deeply studying what truly interests me, slowly accumulating and refining my skills.  
 
-If I only had a year left in life, I’d focus all my energy on a real, intimate, deeply connected relationship.  
+I have nothing to complain for my past life. If I only had a year left in life, I would wish to experience a real, intimate, deeply connected relationship.  
 Not just companionship, but mutual understanding and support, making the remaining time warm and fulfilling.
 
 ---
