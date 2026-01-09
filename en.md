@@ -29,9 +29,10 @@ title: ""
 
 If I were a fruit, I’d be a ripe passion fruit.  
 If I were a pet, probably a mix between a cat and a Border Collie.
-If I were a bug, probably I have some part of a Bdelloid Rotifer.
+If I were a bug, probably I have some DNA of a Bdelloid Rotifer.
 
-At first glance, I seem quiet and reserved, not flashy. but inside, my emotions are abundant and sincere.  
+At first glance, I seem quiet and reserved. but inwardly I'm confident, emotionally rich and sincere.
+I enjoy a relaxed, leisurely pace of life, and I tend to follow my own path rather than go with the crowd.
 
 In relationships, I’m more like a cat.
 I enjoy my own company, also can be warm and affectionate.
