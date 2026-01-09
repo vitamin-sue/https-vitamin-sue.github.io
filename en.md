@@ -131,6 +131,7 @@ I tend to give emotional support and affirmation, and my expectations for a rela
 
 Of course, there may be reasons for hesitation.  
 I value cleanliness and order, but I don’t have high demands for material or lifestyle.  
+I’m not too focused on details or formalities, and I don’t spend much energy on things that don’t really interest me.
 My energy isn’t always high-octane; I focus on pacing and recovery.  
 My principles are flexible, but I continually self-reflect and adjust, aiming for steady life and relationships.
 
