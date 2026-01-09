@@ -35,7 +35,7 @@ At first glance, I seem quiet and reserved. but inwardly I'm confident, emotiona
 I enjoy a relaxed, leisurely pace of life, and I tend to follow my own path rather than go with the crowd.
 
 In relationships, I’m more like a cat.
-I enjoy my own company, also can be warm and affectionate.
+I enjoy my own company, like exploring, also can be warm and affectionate.
 I value comfort and security in a connection — like a cat, I appreciate slowly building trust and feeling safe within clear boundaries, far more than fleeting excitement or surface-level fun.
 
 At the same time, I’m also like a Border Collie: attuned to others’ emotions, able to analyze problems rationally, communicate proactively, and not be led by my emotions.
