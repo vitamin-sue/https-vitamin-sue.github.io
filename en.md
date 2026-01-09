@@ -29,6 +29,7 @@ title: ""
 
 If I were a fruit, I’d be a ripe passion fruit.  
 If I were a pet, probably a mix between a cat and a Border Collie.
+If I were a bug, probably I have some part of a Bdelloid Rotifer.
 
 At first glance, I seem quiet and reserved, not flashy.  
 But inside, I’m quite sensitive—once understood, my emotions are abundant and sincere.  
