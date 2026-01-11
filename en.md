@@ -92,7 +92,6 @@ I think the most worthwhile investments are always things that are long-lasting,
 I admire people who have influenced the world with intelligence and resilience:  
 
 - **Kazuo Inamori**: Like a mature apple, rational, resilient, mission-driven, yet radiating warmth and light that draws people close.  
-- **Cao Cao**: Like a clever fox, decisive and wise, able to see clearly in complex situations and act swiftly.  
 - **Bruce Lee**: Like a sprinting cheetah, focused, efficient, extremely disciplined, never compromising on personal growth and breakthroughs.
 
 ---
