@@ -29,7 +29,6 @@ title: ""
 
 If I were a fruit, I’d be a ripe passion fruit.  
 If I were a pet, probably a mix between a cat and a Border Collie.
-If I were a bug, probably I have some DNA of a Bdelloid Rotifer.
 
 At first glance, I may seem quiet and reserved, but inwardly I’m deeply confident, and can laugh at myself from time to time, emotionally rich and sincere.
 I enjoy a relaxed, leisurely pace of life and tend to follow my own path rather than go with the crowd.
@@ -92,7 +91,6 @@ I think the most worthwhile investments are always things that are long-lasting,
 
 I admire people who have influenced the world with intelligence and resilience:  
 
-- **Tokugawa Ieyasu**: Like an old oak tree, steady and patient, calm in storms, making those around him feel safe.  
 - **Kazuo Inamori**: Like a mature apple, rational, resilient, mission-driven, yet radiating warmth and light that draws people close.  
 - **Cao Cao**: Like a clever fox, decisive and wise, able to see clearly in complex situations and act swiftly.  
 - **Bruce Lee**: Like a sprinting cheetah, focused, efficient, extremely disciplined, never compromising on personal growth and breakthroughs.
