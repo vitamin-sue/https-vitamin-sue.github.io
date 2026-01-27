@@ -46,11 +46,18 @@ My lifestyle is simple and unhurried, my energy isn’t constantly high-octane, 
 
 ### The Partner I Hope to Meet
 
-If you were a fruit, I’d hope you’d be a ripe apple — grounded, gently sweet, resilient.
-If you were a pet, I’d hope you’d be a mix of a cat and a Golden Retriever — comfortable being on your own, warm and reliable, emotionally perceptive toward others, and willing to give.
+I’m drawn to people like this:
+Those who keep their life clean and orderly, and have a sense of control over their own path;
+Who can live well on their own, with stability and groundedness.
 
-I’m naturally drawn to people who are mature, gentle, solid on the inside, and communicate openly and thoughtfully.
-Someone who doesn’t keep score or overthink, who can both give and receive in emotions and in life — that kind of presence makes me feel at ease.
+They are confident, but not showy;
+Considerate of others’ feelings, while also respecting boundaries.
+
+They have the courage to face what’s real, including their own vulnerability;
+They are willing to communicate—able to express their feelings clearly, and to listen with reason.
+
+In both relationships and life, they can give, and they can receive.
+That kind of unforced, unentangled, inner steadiness makes me feel safe.
 
 ✅ **Traits I Appreciate**
 - Age difference of around ±10 years  
